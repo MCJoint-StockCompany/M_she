@@ -1,6 +1,6 @@
 ## 欢迎下载M社高清PVP材质包
 
-点击下载→[下载最新版(41.04MB)](https://pan.baidu.com/s/1zFMUz6lFKRBbk9qvGnbIJA)←点击下载
+点击下载→[下载最新版(41.04MB)](https://pan.baidu.com/s/1pVxSkM9Q3BH8uCNIeEQjjw)←点击下载
 
 ## 欢迎下载M社生存材质包
                              
