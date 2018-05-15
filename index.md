@@ -13,10 +13,6 @@
 
 点击下载→[下载最新版（17.08MB）](https://pan.baidu.com/s/164BeLU4x7jOOf_Zs6NgfFA)←点击下载
 
-## 下载材质包BeJinxed
-
-点击下载→[下载最新版（6.08MB）](https://pan.baidu.com/s/1KksT-NvVDrlmmCvXbaVrRw)←点击下载
-
 ## 下载材质包breeZe v2（修改by 药儿哟）
 
 点击下载→[下载最新版（16.32MB）](https://pan.baidu.com/s/1Vk1bZVZGUXLWhfdhQoZ5pg)←点击下载
@@ -24,6 +20,10 @@
 ## 下载材质包Azora『256x』
 
 点击下载→[下载最新版（23.89MB）](https://pan.baidu.com/s/1KgPPhtzj_WTZQ9bbWkj1ow)←点击下载
+
+## 下载材质包BeJinxed
+
+点击下载→[下载最新版（6.08MB）](https://pan.baidu.com/s/1KksT-NvVDrlmmCvXbaVrRw)←点击下载
 
 ## 下载材质包Chant          ☆★新！★☆
 
