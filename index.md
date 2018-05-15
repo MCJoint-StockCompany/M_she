@@ -14,4 +14,6 @@
 
 点击下载→[下载最新版（16.32MB）](https://pan.baidu.com/s/1QeJH8Gjv3SF97FAky0i2QQ)←点击下载
 
-                                                                                          ——整理by.M社
+PS:该文件需要解压
+
+                                                                                          ——整理by.M社
