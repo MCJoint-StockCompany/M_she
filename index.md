@@ -25,4 +25,7 @@
 
 点击下载→[下载最新版（23.89MB）](https://pan.baidu.com/s/1KgPPhtzj_WTZQ9bbWkj1ow)←点击下载
 
+## 下载材质包Chant          ☆★新！★☆
+
+点击下载→[下载最新版（1.55MB）](https://pan.baidu.com/s/1l_O5f7k7o9SojYl19dol_g)←点击下载
                                                                                           ——整理by M社
