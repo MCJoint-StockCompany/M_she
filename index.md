@@ -10,7 +10,7 @@
 
 点击下载→[下载最新版（17.08MB）](https://pan.baidu.com/s/164BeLU4x7jOOf_Zs6NgfFA)←点击下载
 
-## 下载材质包breeZe v2（修改by.药儿哟）
+## 下载材质包breeZe v2（修改by 药儿哟）
 
 点击下载→[下载最新版（16.32MB）](https://pan.baidu.com/s/1QeJH8Gjv3SF97FAky0i2QQ)←点击下载
 
@@ -20,4 +20,4 @@ PS:该文件需要解压
 
 点击下载→[下载最新版（23.89MB）](https://pan.baidu.com/s/1KgPPhtzj_WTZQ9bbWkj1ow)←点击下载
 
-                                                                                          ——整理by.M社
+                                                                                          ——整理by M社
