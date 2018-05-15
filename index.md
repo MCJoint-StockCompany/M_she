@@ -1,6 +1,6 @@
 ## 下载材质包Callotex(M社PVP时使用的材质包)
 
-点击下载→[下载最新版(42.8MB)](https://pan.baidu.com/s/1CfXW4LR2bQR-w6H_sjg_vw)←点击下载
+点击下载→[下载最新版(42.8MB)](https://pan.baidu.com/s/1O2ve0mSJX7F_MISNP9Alag)←点击下载
 
 ## 下载材质包faithful『64x』(M社生存材质)
  
