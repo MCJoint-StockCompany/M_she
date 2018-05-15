@@ -12,9 +12,7 @@
 
 ## 下载材质包breeZe v2（修改by 药儿哟）
 
-点击下载→[下载最新版（16.32MB）](https://pan.baidu.com/s/1QeJH8Gjv3SF97FAky0i2QQ)←点击下载
-
-PS:该文件需要解压
+点击下载→[下载最新版（16.32MB）](https://pan.baidu.com/s/1Vk1bZVZGUXLWhfdhQoZ5pg)←点击下载
 
 ## 下载材质包Azora『256x』
 
