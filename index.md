@@ -16,4 +16,8 @@
 
 PS:该文件需要解压
 
+## 下载材质包Azora『256x』
+
+点击下载→[下载最新版（23.89MB）](https://pan.baidu.com/s/1KgPPhtzj_WTZQ9bbWkj1ow)←点击下载
+
                                                                                           ——整理by.M社
