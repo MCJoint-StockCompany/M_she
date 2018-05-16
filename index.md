@@ -2,9 +2,9 @@
 
 注意，这个网站内所有的所有的材质都可以免费下载，持续更新中……
 
-## 下载材质包Callotex(M社PVP时使用的材质包)
+## 下载整合材质Callotex(M社PVP时使用的材质包)
 
-  作者:M社、Tight、Callous
+  作者:M社、Tight、Callous、Cholo
 
 点击下载→[下载最新版(42.8MB)](https://pan.baidu.com/s/1O2ve0mSJX7F_MISNP9Alag)←点击下载
 
@@ -26,7 +26,7 @@
 
 点击下载→[下载最新版（16.32MB）](https://pan.baidu.com/s/1Vk1bZVZGUXLWhfdhQoZ5pg)←点击下载
 
-## 下载材质包Azora『256x』
+## 下载材质包Azora【256x】
 
   作者:MikeV
 
@@ -43,4 +43,11 @@
   作者:MikeV
 
 点击下载→[下载最新版（1.55MB）](https://pan.baidu.com/s/1l_O5f7k7o9SojYl19dol_g)←点击下载
-                                                                                          ——整理by M社
+
+——整理by M社
+
+## 下载材质包Huahwi【64x】
+
+  作者:Cholo
+
+点击下载→[下载最新版（36.36MB）](https://pan.baidu.com/s/1m-3JMot6a8KbmXqOowF5fA)←点击下载
