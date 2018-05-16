@@ -2,7 +2,7 @@
 
 注意，这个网站内所有的所有的材质都可以免费下载，持续更新中……
 
-## 下载整合材质Callotex(M社PVP时使用的材质包)
+## 下载整合材质Callotex(M社PVP时使用的材质包)     :+༺HOT！༻+:
 
   作者:M社、Tight、Callous、Cholo
 
@@ -38,7 +38,7 @@
 
 点击下载→[下载最新版（6.08MB）](https://pan.baidu.com/s/1KksT-NvVDrlmmCvXbaVrRw)←点击下载
 
-## 下载材质包Chant             ☆★新！★☆
+## 下载材质包Chant
 
   作者:MikeV
 
