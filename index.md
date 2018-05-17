@@ -6,7 +6,7 @@
 
   作者:M社、Tight、Callous
 
-点击下载→[下载最新版(43.00MB)](https://pan.baidu.com/s/1djH9dwtGEUv5CH6VjhEFqw)←点击下载
+点击下载→[下载最新版(21.32MB)](https://pan.baidu.com/s/1mcg9Bkc0hQPw0Ioe7cUlWQ)←点击下载
 
 ## 下载材质包faithful【64x】(M社生存材质)
 
