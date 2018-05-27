@@ -56,6 +56,6 @@
 
   作者:VanirRose
   
-[[官方下载]](http://t.cn/R1blD7j)[[网盘下载]](https://pan.baidu.com/s/1w2VdSHK3dExOBTmO8dBj5g)
+[[官方下载]](http://t.cn/R1blD7j)  [[网盘下载]](https://pan.baidu.com/s/1w2VdSHK3dExOBTmO8dBj5g)
 
 ——整理by M社
