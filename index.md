@@ -8,7 +8,7 @@
 
   作者:M社、Tight、Callous
 
-[[官方下载]](https://mcjoint-stockcompany.github.io/error/)
+[[官方下载]](https://mcjoint-stockcompany.github.io/error/)  [[网盘下载]](https://pan.baidu.com/s/1NGkeTqyuUtQSxPyYjPs8Aw)
 
 ## 下载材质包faithful【64x】(M社生存材质)
 
@@ -57,5 +57,11 @@
   作者:VanirRose
   
 [[官方下载]](http://t.cn/R1blD7j)  [[网盘下载]](https://pan.baidu.com/s/1w2VdSHK3dExOBTmO8dBj5g)
+
+## 下载材质包NotroDan Default
+
+  作者:NotroDan
+  
+[[官方下载]](http://t.cn/R1buLW8)  [[网盘下载]](https://pan.baidu.com/s/1_jbq-U1PCXzDFxt6rmoIBA)
 
 ——整理by M社
