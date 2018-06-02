@@ -34,7 +34,7 @@
 
   作者:MikeV
 
-[[网盘下载]](https://pan.baidu.com/s/1KgPPhtzj_WTZQ9bbWkj1ow)
+[[官方下载]](http://www.mediafire.com/file/7km9lyg8jdponv9/!_%C2%A71Azura_32x.zip)  [[网盘下载]](https://pan.baidu.com/s/1KgPPhtzj_WTZQ9bbWkj1ow)
 
 ## 下载材质包BeJinxed
 
