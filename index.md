@@ -22,7 +22,7 @@
 
   作者:Tight
   
-[[网盘下载]](https://pan.baidu.com/s/164BeLU4x7jOOf_Zs6NgfFA)
+[[官方下载]](https://www.youtube.com/redirect?v=nI35XUrR35I&event=video_description&redir_token=VCYl5jAspzJ0fMuXy5YIygaohUp8MTUyODAzMjM4NEAxNTI3OTQ1OTg0&html_redirect=1&q=https%3A%2F%2Fwww.mediafire.com%2Ffile%2Fssxjib3osxft18p%2F)  [[网盘下载]](https://pan.baidu.com/s/164BeLU4x7jOOf_Zs6NgfFA)
 
 ## 下载材质包breeZe v2（修改by 药儿哟）
 
