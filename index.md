@@ -10,13 +10,13 @@
 
   作者:M社、Tight、Callous
 
-[[官方下载]](https://mcjoint-stockcompany.github.io/error/)  [[网盘下载]](https://pan.baidu.com/s/1NGkeTqyuUtQSxPyYjPs8Aw)
+[[官方下载]](https://mcjoint-stockcompany.github.io/error/)  [[网盘下载]](https://pan.baidu.com/s/1q7jiFzxpbJ6Pz2s77brTQQ)
 
 ## 下载材质包faithful【64x】(M社生存材质)
 
   作者:Jeas
  
-[敬请期待]()[[网盘下载]](https://pan.baidu.com/s/1W2VG301t1YHU5u8XtLtlPw)
+[[敬请期待]]()[[网盘下载]](https://pan.baidu.com/s/1W2VG301t1YHU5u8XtLtlPw)
 
 ## 下载材质包breeZe v2（原版）
 
