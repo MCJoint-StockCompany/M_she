@@ -28,7 +28,7 @@
 
   作者:Tight、药儿哟
 
-[[网盘下载]](https://pan.baidu.com/s/1Vk1bZVZGUXLWhfdhQoZ5pg)
+[[敬请期待]]()[[网盘下载]](https://pan.baidu.com/s/1Vk1bZVZGUXLWhfdhQoZ5pg)
 
 ## 下载材质包Azora【256x】
 
@@ -40,19 +40,19 @@
 
   作者:Mysticals
 
-[[网盘下载]](https://pan.baidu.com/s/1KksT-NvVDrlmmCvXbaVrRw)
+[[敬请期待]]()[[网盘下载]](https://pan.baidu.com/s/1KksT-NvVDrlmmCvXbaVrRw)
 
 ## 下载材质包Chant
 
   作者:MikeV
 
-[[网盘下载]](https://pan.baidu.com/s/1l_O5f7k7o9SojYl19dol_g)
+[[敬请期待]]()[[网盘下载]](https://pan.baidu.com/s/1l_O5f7k7o9SojYl19dol_g)
 
 ## 下载材质包Huahwi【64x】
 
   作者:Cholo
 
-[[网盘下载]](https://pan.baidu.com/s/1m-3JMot6a8KbmXqOowF5fA)
+[[敬请期待]]()[[网盘下载]](https://pan.baidu.com/s/1m-3JMot6a8KbmXqOowF5fA)
 
 ## 下载材质包SUCHSPEED【16x】
 
