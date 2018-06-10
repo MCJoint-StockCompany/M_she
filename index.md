@@ -30,6 +30,12 @@
 
 [[敬请期待]]()[[网盘下载]](https://pan.baidu.com/s/1Vk1bZVZGUXLWhfdhQoZ5pg)
 
+## 下载材质包breeZe v2(修改by M社、药儿哟)
+
+  作者:Tight、药儿哟、M社
+  
+[[敬请期待]]()[[网盘下载]](https://pan.baidu.com/s/1TekUrhS5SN_LNbtPewtqag)
+
 ## 下载材质包Azora【256x】
 
   作者:MikeV
