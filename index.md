@@ -6,13 +6,13 @@
 
 3.如果你在使用第三方软件(如微信、QQ)打开此网站，请使用浏览器打开！
 
-## 下载整合材质Callotex(M社PVP时使用的材质包)
+## 下载整合材质Callotex
 
   作者:M社、Tight、Callous
 
 [[官方下载]](https://mcjoint-stockcompany.github.io/error/)  [[网盘下载]](https://pan.baidu.com/s/1q7jiFzxpbJ6Pz2s77brTQQ)
 
-## 下载材质包faithful【64x】(M社生存材质)
+## 下载材质包faithful【64x】
 
   作者:Jeas
  
